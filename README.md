@@ -1,1 +1,4 @@
-- 👋 Hi, I’m @Sanchayata 
+- 👋 Hi, I’m Shrishti Sanjay Nayal, but my friends call me Sanchayata, which means Collector of good deeds
+- I am in M.A. Sociology final year and expect to finish by Dec 2024
+- Upcoming MA projects in April 2024
+- I live in Mumbai and Mysore occasionally 
